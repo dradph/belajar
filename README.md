@@ -1,0 +1,2 @@
+# belajar
+Mencoba untuk bisa
